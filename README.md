@@ -1,1 +1,0 @@
-# Elektricke_pole
